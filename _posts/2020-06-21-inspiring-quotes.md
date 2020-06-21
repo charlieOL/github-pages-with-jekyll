@@ -1,3 +1,8 @@
+---
+title: "Encouraging Quotes"
+date: 2020-06-21
+---
+
 # Encouraging Quotes
 
 *Take that next step with these motivational sayings:*
